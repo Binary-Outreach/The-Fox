@@ -36,7 +36,7 @@ Collaborator :- Inshal Khan.
 
 GitHub Username :- Regis-Caelum.
 
-Email :- regis_caelum@tuta.io.
+Email :- RegisCaelum@tutanota.de.
 
 
 
